@@ -1,5 +1,4 @@
 <p align="center">
-  ## [🍻]( https://pronouns.cc/@thegoatthatdrinks) $\color{#660000}{\textsf{ <- prns page}}$ $\color{#660000}{\textsf{ :}}$ $\color{#660000}{\textsf{ atabook ->}}$ [💸](https://drunkenhorns.atabook.org/)
 <img width="935" height="300" alt="image" src="https://github.com/user-attachments/assets/24222089-3706-43b5-bad9-3df868dea23c" />
 $\color{#646255}{\textsf{"The difference between me and a dog is.. I am taller. think about it. just, think about it."}}$
 
@@ -13,3 +12,7 @@ $\color{#51512e}{\textsf{Basic dni, I hide/block freely.}}$
   $\color{#353b41}{\textsf{"It sound's like you're reading a script."}}$
 <p align="center">
 $\color{#112130}{\textsf{"Try that again, And sound more.. Natural."}}$
+<p align="center">
+❤️<img width="150" height="150" alt="image" src="https://github.com/user-attachments/assets/35c49caf-7045-467c-b746-cd60358a82fc" />  <img width="150" height="150" alt="image" src="https://github.com/user-attachments/assets/fbc66425-0e4f-40c7-9678-713b31d8dce2" />❤️
+<p align="center">
+$\color{#51512e}{\textsf{THE Vincent and Rory yumeshipper.}}$
