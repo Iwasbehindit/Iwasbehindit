@@ -1,6 +1,6 @@
 <p align="center">
 <img width="935" height="300" alt="image" src="https://github.com/user-attachments/assets/24222089-3706-43b5-bad9-3df868dea23c" />
-$\color{#646255}{\textsf{"The difference bewteen me and a dog is.. I am taller. think about it. just, think about it."}}$
+$\color{#646255}{\textsf{"The difference between me and a dog is.. I am taller. think about it. just, think about it."}}$
 
 <p align="center">
 $\color{#9e9767}{\textsf{-}}$ $\color{#646255}{\textsf{I'm very picky on who interacts with me, so please stay cautious.}}$ $\color{#9e9767}{\textsf{-}}$
