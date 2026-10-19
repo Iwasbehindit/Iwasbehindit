@@ -1,4 +1,5 @@
 <p align="center">
+  ## [🍻]( https://pronouns.cc/@thegoatthatdrinks) $\color{#660000}{\textsf{ <- prns page}}$ $\color{#660000}{\textsf{ :}}$ $\color{#660000}{\textsf{ atabook ->}}$ [💸](https://drunkenhorns.atabook.org/)
 <img width="935" height="300" alt="image" src="https://github.com/user-attachments/assets/24222089-3706-43b5-bad9-3df868dea23c" />
 $\color{#646255}{\textsf{"The difference between me and a dog is.. I am taller. think about it. just, think about it."}}$
 
