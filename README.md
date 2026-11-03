@@ -17,4 +17,4 @@ $\color{#112130}{\textsf{"Try that again, And sound more.. Natural."}}$
 <p align="center">
 $\color{#51512e}{\textsf{THE Vincent and Rory yumeshipper.}}$
 <p align="center">
-  you'll probably see me as Bucky Barnes/James, Alex Kralie, Wayne (Netflix), Steve Rogers, Xvirus/Liam and Hoody/Hoodie.
+  you'll probably see me as Bucky Barnes/James, Alex Kralie, Wayne (Netflix), Steve Rogers, Xvirus/Liam or Hoody/Hoodie.
