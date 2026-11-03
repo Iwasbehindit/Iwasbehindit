@@ -16,3 +16,5 @@ $\color{#112130}{\textsf{"Try that again, And sound more.. Natural."}}$
 ❤️<img width="150" height="150" alt="image" src="https://github.com/user-attachments/assets/35c49caf-7045-467c-b746-cd60358a82fc" />  <img width="150" height="150" alt="image" src="https://github.com/user-attachments/assets/fbc66425-0e4f-40c7-9678-713b31d8dce2" />❤️
 <p align="center">
 $\color{#51512e}{\textsf{THE Vincent and Rory yumeshipper.}}$
+<p align="center">
+  you'll probably see me as Bucky Barnes/James, Alex Kralie, Wayne (Netflix), Steve Rogers, Xvirus/Liam and Hoody/Hoodie.
