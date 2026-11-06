@@ -15,9 +15,9 @@ $\color{#112130}{\textsf{"Try that again, And sound more.. Natural."}}$
 <p align="center">
 ❤️<img width="150" height="150" alt="image" src="https://github.com/user-attachments/assets/35c49caf-7045-467c-b746-cd60358a82fc" />  <img width="150" height="150" alt="image" src="https://github.com/user-attachments/assets/fbc66425-0e4f-40c7-9678-713b31d8dce2" />❤️
 <p align="center">
-$\color{#51512e}{\textsf{THE Vincent and Rory lover + yumeshipper.}}$
+$\color{#51512e}{\textsf{my gorgeous husband's ! ! !}}$
 <p align="center">
-$\color{#51512e}{\textsf{you'll probably see me as Bucky Barnes/James, Alex Kralie, Wayne (Netflix), Steve Rogers, Steven Grant, or Quicksilver/Peter.}}$
+$\color{#353b41}{\textsf{you'll probably see me as Bucky Barnes/James, Alex Kralie, Wayne (Netflix), Steve Rogers, Steven Grant, or Quicksilver/Peter.}}$
  <p align="center">
 
    -----
@@ -26,9 +26,12 @@ $\color{#646255}{\textsf{Fandoms, please iwc. unless stated otherwise.}}$
 $\color{#646255}{\textsf{Main ones being, Supernatural, InsideJob, HarryPotter, Miracle Musical, Sailormoon and Transformers.}}$
 $\color{#646255}{\textsf{c+h+t is always welcome, unless stated not too. but please don't cover me !}}$
 $\color{#646255}{\textsf{int: Marvel, DC, Doctorwho, Roblox, Bioshock, Final fantasy, Final Destination, Fortnite, Marvel Rivals, Moonknight, and most animes !}}$
-$\color{#646255}{\textsf{byi: I have attachment + avoidment issues, so I will probably forget who you are if we do not hangout. It's not that I don't care about you, It's just how my brain works. Out of view, out of mine type of thing. so please don't get pissy because I removed you or forgot who you are. I am only one person. < 3}}$
+$\color{#646255}{\textsf{byi: I have attachment + avoidment issues, so I will probably forget who you are if we do not hangout. It's not that I don't care about you, }}$
+$\color{#646255}{\textsf{It's just how my brain works. Out of view, out of mind type of thing. so please don't get pissy because I removed you or forgot who you are. I am only one person. < 3}}$
+$\color{#646255}{\textsf{one person. < 3}}$
+ 
+   -----
 
- -----
  <p align="center">
 $\color{#9e9767}{\textsf{-}}$ $\color{#646255}{\textsf{Khonshu's 1 fan/loverboy.}}$ $\color{#9e9767}{\textsf{-}}$
 $\color{#646255}{\textsf{Doubles can int, I really don't mind! just don't make my yumes of Matthew Murdock/Daredevil, Khonshu, Vinnie/Vincent, Rory Peters }}$
