@@ -30,7 +30,7 @@ $\color{#646255}{\textsf{byi: I have attachment + avoidment issues, so I will pr
 
  -----
  <p align="center">
-$\color{#9e9767}{\textsf{-}}$ $\color{#646255}{\textsf{Khonshu's #1 fan/loverboy.}}$ $\color{#9e9767}{\textsf{-}}$
+$\color{#9e9767}{\textsf{-}}$ $\color{#646255}{\textsf{Khonshu's 1 fan/loverboy.}}$ $\color{#9e9767}{\textsf{-}}$
 $\color{#9e9767}{\textsf{-}}$ $\color{#646255}{\textsf{Doubles can int, I really don't mind! just don't make my yumes of Matthew Murdock/Daredevil, Khonshu, Vinnie/Vincent, Rory Peters & Ron Steadler a competition. I will block or simply ignore you.}}$ $\color{#9e9767}{\textsf{-}}$
  <p align="center">
 <img width="1200" height="496" alt="d6752de451f5c7e336f5da0b35381ead" src="https://github.com/user-attachments/assets/e79d7281-759d-42a8-ac2c-a04df34e537e" />
