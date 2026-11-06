@@ -29,6 +29,9 @@ $\color{#646255}{\textsf{int: Marvel, DC, Doctorwho, Roblox, Bioshock, Final fan
 $\color{#646255}{\textsf{byi: I have attachment + avoidment issues, so I will probably forget who you are if we do not hangout. It's not that I don't care about you, }}$
 $\color{#646255}{\textsf{It's just how my brain works. Out of view, out of mind type of thing. so please don't get pissy because I removed you or forgot who you are. I am only one person. < 3}}$
 $\color{#646255}{\textsf{one person. < 3}}$
+
+<p align="center">
+<img width="700" height="150" alt="haunting_2" src="https://github.com/user-attachments/assets/3cded4f9-cbe8-4cf5-9976-1509f9615ede" />
  
    -----
 
@@ -37,7 +40,7 @@ $\color{#9e9767}{\textsf{-}}$ $\color{#646255}{\textsf{Khonshu's 1 fan/loverboy.
 $\color{#646255}{\textsf{Doubles can int, I really don't mind! just don't make my yumes of Matthew Murdock/Daredevil, Khonshu, Vinnie/Vincent, Rory Peters }}$
 $\color{#646255}{\textsf{  and Ron Steadler a competition. I will block or simply ignore you.}}$
  <p align="center">
-<img width="1200" height="496" alt="d6752de451f5c7e336f5da0b35381ead" src="https://github.com/user-attachments/assets/e79d7281-759d-42a8-ac2c-a04df34e537e" />
+<img width="1200" height="496" alt="khonshu_banner" src="https://github.com/user-attachments/assets/f605d8c7-5c03-462d-be68-e83880dab7ec" />
  <p align="center">
 <img width="250" height="250" alt="a5e1440fd8a595acc991e2d1c68302f3" src="https://github.com/user-attachments/assets/917174b9-d754-4bd6-8447-d64f7664b28f" /> 
 <img width="250" height="250" alt="b642649cdf67ba88354fc5737175851c" src="https://github.com/user-attachments/assets/04661a9b-2213-448a-baaf-0e75d2d8d758" />
