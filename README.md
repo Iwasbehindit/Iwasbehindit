@@ -36,4 +36,5 @@ $\color{#646255}{\textsf{  and Ron Steadler a competition. I will block or simpl
  <p align="center">
 <img width="1200" height="496" alt="d6752de451f5c7e336f5da0b35381ead" src="https://github.com/user-attachments/assets/e79d7281-759d-42a8-ac2c-a04df34e537e" />
  <p align="center">
-<img width="200" height="200" alt="a5e1440fd8a595acc991e2d1c68302f3" src="https://github.com/user-attachments/assets/917174b9-d754-4bd6-8447-d64f7664b28f" /> <img width="200" height="200" alt="1159bdf90b274a695cdf4df1d77b913c" src="https://github.com/user-attachments/assets/25c6cdef-fc9e-4b58-b595-8f3a061d88ad" />
+<img width="250" height="250" alt="a5e1440fd8a595acc991e2d1c68302f3" src="https://github.com/user-attachments/assets/917174b9-d754-4bd6-8447-d64f7664b28f" /> 
+<img width="250" height="250" alt="b642649cdf67ba88354fc5737175851c" src="https://github.com/user-attachments/assets/04661a9b-2213-448a-baaf-0e75d2d8d758" />
