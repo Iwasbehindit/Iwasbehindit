@@ -7,7 +7,7 @@ $\color{#9e9767}{\textsf{-}}$ $\color{#646255}{\textsf{I'm very picky on who int
 <p align="center">
 $\color{#51512e}{\textsf{Basic dni, I hide/block freely.}}$
 <p align="center">
-<img width="150" height="50" alt="image" src="https://github.com/user-attachments/assets/20d4c8ee-b9f0-4891-bc00-8c3a59c88e58" />
+ <img src="https://github.com/user-attachments/assets/3cded4f9-cbe8-4cf5-9976-1509f9615ede" style="background: transparent !important;" height="225" alt="Transparent Image">
 <p align="center">
   $\color{#353b41}{\textsf{"It sound's like you're reading a script."}}$
 <p align="center">
@@ -31,7 +31,8 @@ $\color{#646255}{\textsf{It's just how my brain works. Out of view, out of mind 
 $\color{#646255}{\textsf{one person. < 3}}$
 
 <p align="center">
- <img src="https://github.com/user-attachments/assets/3cded4f9-cbe8-4cf5-9976-1509f9615ede" style="background: transparent !important;" width="525" alt="Transparent Image">
+  <img width="150" height="50" alt="image" src="https://github.com/user-attachments/assets/20d4c8ee-b9f0-4891-bc00-8c3a59c88e58" />
+<p align="center">
 
   -----
 
