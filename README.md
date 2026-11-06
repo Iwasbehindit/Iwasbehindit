@@ -19,6 +19,7 @@ $\color{#51512e}{\textsf{my gorgeous husband's ! ! !}}$
 <p align="center">
 $\color{#353b41}{\textsf{you'll probably see me as Bucky Barnes/James, Alex Kralie, Wayne (Netflix), Steve Rogers, Steven Grant, or Quicksilver/Peter.}}$
  <p align="center">
+   [![Visits](https://komarev.com/ghpvc/?username=Iwasbehindit&logo=GitHub&label=github%20visits&color=336699&logoColor=white&style=flat-square)]((https://github.com/Iwasbehindit))
 
    -----
 
