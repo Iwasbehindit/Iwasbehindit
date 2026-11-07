@@ -27,8 +27,8 @@ $\color{#646255}{\textsf{Main ones being, Supernatural, InsideJob, HarryPotter, 
 $\color{#646255}{\textsf{c+h+t is always welcome, unless stated not too. but please don't cover me !}}$
 $\color{#646255}{\textsf{int: Marvel, DC, Doctorwho, Roblox, Bioshock, Final fantasy, Final Destination, Fortnite, Marvel Rivals, Moonknight, and most animes !}}$
 $\color{#646255}{\textsf{byi: I have attachment + avoidment issues, so I will probably forget who you are if we do not hangout. It's not that I don't care about you, }}$
-$\color{#646255}{\textsf{It's just how my brain works. Out of view, out of mind type of thing. so please don't get pissy because I removed you or forgot who you are. I am only one person. < 3}}$
-$\color{#646255}{\textsf{one person. < 3}}$
+$\color{#646255}{\textsf{It's just how my brain works. Out of view, out of mind type of thing. so please don't get pissy because I removed you or forgot who you are.}}$
+$\color{#646255}{\textsf{I am only one person. < 3}}$
 <p align="center">
 
   -----
