@@ -43,3 +43,8 @@ $\color{#646255}{\textsf{  and Ron Steadler a competition. I will block or simpl
  <p align="center">
 <img width="250" height="250" alt="a5e1440fd8a595acc991e2d1c68302f3" src="https://github.com/user-attachments/assets/917174b9-d754-4bd6-8447-d64f7664b28f" /> 
 <img width="250" height="250" alt="b642649cdf67ba88354fc5737175851c" src="https://github.com/user-attachments/assets/04661a9b-2213-448a-baaf-0e75d2d8d758" />
+
+ <p align="center">
+ <img src="https://github.com/user-attachments/assets/486bd1e0-a68a-4567-a9d2-df91c90ce168" style="background: transparent !important;" width="300" alt="Transparent Image">
+ <img src="https://github.com/user-attachments/assets/7d3f51b3-c83c-4c47-9310-6489aea6fc0d" style="background: transparent !important;" width="300" alt="Transparent Image">
+ <img src="https://github.com/user-attachments/assets/5ba82036-7a5d-4116-88eb-c1b58d08be01" style="background: transparent !important;" width="300" alt="Transparent Image">
